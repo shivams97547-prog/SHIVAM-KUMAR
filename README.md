@@ -37,7 +37,7 @@ CAREER OBJECTIVE
 To begin my professional journey with an organization like Reliance Jio, where I can apply my technical knowledge, learn from experienced professionals, strengthen my industry skills, and contribute to team and organizational goals.
 
 
-⭐ If you like my portfolio, consider giving this repository a star!
+
 
 
 
