@@ -36,6 +36,7 @@ Adaptability • Quick Learning • Problem Solving • Teamwork • Creativity 
 CAREER OBJECTIVE
 To begin my professional journey with an organization like Reliance Jio, where I can apply my technical knowledge, learn from experienced professionals, strengthen my industry skills, and contribute to team and organizational goals.
 
+⭐ If you like this project, consider giving it a star!
 
 
 
